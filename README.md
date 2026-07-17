@@ -5,6 +5,9 @@ please do NOT copy my skin, also don't take any inspo of it without permisson ok
 c+h always if u see me, i'm frieenddlyy. 
 
 STATUS MEANING : ⢏⢢⣀⡔⡹
+
 . LFC/RP ( looking for chat/rp ) u can communicate with me freely, EVEN if i'm with somebody .
+
 . DNI if status is "busy" . I'm with my pals chilling don't want any ppl to disturb us
+
 . w2i is status is "away" - im asleep or offtab 
