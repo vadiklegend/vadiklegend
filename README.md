@@ -11,3 +11,6 @@ STATUS MEANING : ⢏⢢⣀⡔⡹
 . DNI if status is "busy" . I'm with my pals chilling don't want any ppl to disturb us
 
 . w2i is status is "away" - im asleep or offtab 
+
+
+I remember people I like very easilyyy. so please don't consider me AS A WEIRDO IF I RANDOMLY COME UP TO U AND GREET/KISS . ૮ ྀི◞ ⸝⸝ ◟ ྀིა
